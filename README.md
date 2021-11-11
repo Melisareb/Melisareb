@@ -7,7 +7,7 @@ I'm Melisareb or Radomila Radon
 - 💬 Ask me about vectors
 - 📫 How to reach me: DM me on Discord Radomila Radon#0697 or here
 - 😄 Pronouns: She/her, they/them
-- ⚡ Fun fact: I have many accounts 😳
+- ⚡ Fun fact: I'm a minor and have many accounts 😳
 
 <!--
 **Melisareb/Melisareb** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
